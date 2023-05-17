@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-## Hi there, I'm Nahvin Muthusamy 👋
+
 > #### _I'm a COMPUTER SCIENTIST majored in ARTIFICIAL INTELLIGENCE who is getting more and more curious._
 ***
 
