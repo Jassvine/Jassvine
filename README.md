@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-> #### _I'm a COMPUTER SCIENTIST majored in ARTIFICIAL INTELLIGENCE who is getting more and more curious._
+> #### _
 ***
 
 ### ⚡ Skills:
